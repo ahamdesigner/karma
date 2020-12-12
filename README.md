@@ -1,4 +1,5 @@
 # karma
 karma notes
 
-Note your karma 
+Note if karma satisfy energy !mutual = energy 
+if equals karma yoga
