@@ -2,4 +2,4 @@
 karma notes
 
 Note if karma satisfy energy !mutual = energy 
-if equals karma yoga
+if equals yoga
