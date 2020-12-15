@@ -1,5 +1,4 @@
-# karma
-karma notes
-
-Note if karma satisfy energy !mutual = energy 
-if equals yoga
+# कर्मन्
+कर्मन् लेख्ये आरोहयति
+चेत् कर्मन् संराधयति शक्ति खलु उभयाविन् = शक्ति 
+चेत् सम योग
